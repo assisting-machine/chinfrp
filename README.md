@@ -1,1 +1,1 @@
-### Thingking Machine (chinfrp)
+### Assisting Machine (chinfrp)
